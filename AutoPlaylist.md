@@ -82,6 +82,7 @@ Press CTRL + F to Search for a song.
 - New Game - https://www.youtube.com/watch?v=6y_NJg-xoeE
 - Final Boss - https://www.youtube.com/watch?v=VGh5DV0D3wk
 - Soldiers - https://www.youtube.com/watch?v=DwN4E3qfTPY
+- Safe & Sound (Feat. Danyka Nadeau) - https://www.youtube.com/watch?v=mc9LKJMedaY
 
 ## Rootkit
 - Against The Sun (Feat. Anna Yvette) - https://www.youtube.com/watch?v=NLukRvKWBeA
@@ -97,6 +98,8 @@ Press CTRL + F to Search for a song.
 ## Noisestorm
 - Breakdown VIP - https://www.youtube.com/watch?v=wqZ5iLOUOGA
 - Heist - https://www.youtube.com/watch?v=YXYYCFaUUHQ
+- Renegade - https://www.youtube.com/watch?v=JjOeSzktwJs
+- Barracuda - https://www.youtube.com/watch?v=KKRRWQq5f5E
 
 ## Hellberg
 - The Girl (Feat. Cozi Zuehlsdorff) - https://www.youtube.com/watch?v=FtveSk1N7Uo
@@ -156,12 +159,17 @@ Press CTRL + F to Search for a song.
 
 ## Draper
 - Ghost Town - https://www.youtube.com/watch?v=LdnaxkeY9yw
+- Pressure (Feat. Laura Brehm) - https://www.youtube.com/watch?v=j8F1NwrHBIU
+- Coloured Glass - https://www.youtube.com/watch?v=ebw-_peGnZ4
 
 ## Tut Tut Child
 - Dance To It - https://www.youtube.com/watch?v=pGvdvT_XWWI
+- Hummingbird (Geat. Augustus Ghost) - https://www.youtube.com/watch?v=a4-Tb4rHZt8
 
 ## Astronaut
 - Apollo - https://www.youtube.com/watch?v=Tzb0_qQWioQ
+- Champions (Feat. Harry Brooks JNR) - https://www.youtube.com/watch?v=iSpOzYhhi7k
+- Rain - https://www.youtube.com/watch?v=WP2sjVnaZxg
 
 ## Victone & Nico Vega
 - Beast - https://www.youtube.com/watch?v=jt0bdaeZMVQ
@@ -209,3 +217,27 @@ Press CTRL + F to Search for a song.
 
 ## Televisor
 - Neon - https://www.youtube.com/watch?v=Ew0By-5EL2g
+
+## Ephixa
+- Dubstep Killed Rock'n Roll - https://www.youtube.com/watch?v=fY1DMYET_-U
+
+## Deon Custom
+- Roses - https://www.youtube.com/watch?v=zGERGT06AsM
+
+## Case & Point
+- Fugitive - https://www.youtube.com/watch?v=eUFxRPN1UW0
+
+## LVTHER
+- One Look (Feat. Mammals) - https://www.youtube.com/watch?v=RJOkI8k_VU0
+
+## Au5
+- Inside (Feat. Danyka Nadeau)  - https://www.youtube.com/watch?v=WrkyT-6ivjc
+
+## Pegboard Nerds & Grabbitz
+- All Alone - https://www.youtube.com/watch?v=_eEziNdIvD8
+
+## Rezonate
+- Pump It! - https://www.youtube.com/watch?v=6R9FfC0Sen8
+
+## Snavs
+- Time - https://www.youtube.com/watch?v=UwbVx-XTubM
