@@ -15,6 +15,48 @@ Press CTRL + F to Search for a song.
 - Mix - https://www.youtube.com/watch?v=FPOYvAtYRhk
 - In My Thoughts - https://www.youtube.com/watch?v=wtVW8qjbLgk
 - The Ballad Of Take Jayk - https://www.youtube.com/watch?v=TRAHo-UEvHA
+- 2AM on FL11 - https://soundcloud.com/tantakeoff/mellowish-beat-idk
+- What A Drag - https://soundcloud.com/tantakeoff/what-a-drag
+- Just Listen - https://soundcloud.com/tantakeoff/someone-suggest-a-name-pls
+- Ay Bruh Check My Soundcloud - https://soundcloud.com/tantakeoff/ay-bruh-check-my-soundcloud
+- #IPUTAHOLEINYOURPARENTS - https://soundcloud.com/tantakeoff/progressively-gets-worse
+- Green Skies - https://soundcloud.com/tantakeoff/yes-i-sampled-chronotrigger
+- 11th Ward - https://soundcloud.com/tantakeoff/ward11
+- 23rd Ward - https://soundcloud.com/tantakeoff/rd-ward
+- Shinobu - https://soundcloud.com/tantakeoff/shinobu-1
+- Izuko - https://soundcloud.com/tantakeoff/808a
+- Ameonna - https://soundcloud.com/tantakeoff/ameonna
+- Above The Clouds - https://soundcloud.com/tantakeoff/above-the-clouds-1
+- Enter Kamina - https://soundcloud.com/tantakeoff/kissshot-enter-kamina
+- Enjoy The Silence - https://soundcloud.com/tantakeoff/kissshot-yuki-onna
+- Enjoy Yourself - https://soundcloud.com/tantakeoff/enjoy-yourself
+- Boutta Drink A Sprite - https://soundcloud.com/tantakeoff/boutta-drink-a-sprite
+- Drop Rate (Instrumental) - https://soundcloud.com/tantakeoff/deadepisodebon2
+- Chin Check - https://soundcloud.com/tantakeoff/deadepisode1
+- Yuki-Onna - https://soundcloud.com/tantakeoff/kissshot-i-need-some-sleep-sold
+- I Need Some Sleep - https://soundcloud.com/tantakeoff/kissshot-i-need-some-sleep-sold-1
+- Falling In Style - https://soundcloud.com/tantakeoff/kissshot-falling-in-style
+- Life In Colour - https://soundcloud.com/tantakeoff/kissshot-life-in-color
+- Broken Bottle Funk - https://soundcloud.com/tantakeoff/kissshot-bbf-broken-bottle-funk-rip-gsh
+- Track 41 - https://soundcloud.com/tantakeoff/kissshot-track-41
+- Life's A Bitch - https://soundcloud.com/tantakeoff/kissshot-lifes-a-bitch-nas-ft-az
+- Creeping Devil - https://soundcloud.com/tantakeoff/kissshot-peyote
+- Awaikanashimi - https://soundcloud.com/tantakeoff/kissshot-awaikanashimi
+- EP & I (Acoustic) - https://soundcloud.com/tantakeoff/epni
+- Drop Rate (Ft. Leon' Swolf) - https://soundcloud.com/tantakeoff/leonswolf-x-boyproxy-drop-rate-prod-kissshot
+- Naruto Shippuden OP 6 Cover - https://soundcloud.com/tantakeoff/sign
+- Shizuoka-Ken - https://soundcloud.com/tantakeoff/kissshot-shizuokaken
+- X-Files - https://soundcloud.com/tantakeoff/x-files-prod-by-kissshot
+- Foursake Taking Over - https://soundcloud.com/tantakeoff/kissshot-foursake-taking-over
+- End - https://soundcloud.com/tantakeoff/kissshot-end
+- Kill A Nigga Named Me - https://soundcloud.com/tantakeoff/kissshot-kill-a-nigga-named-me
+- Enenra - https://soundcloud.com/tantakeoff/kissshot-enenra
+- Kanekiken - https://soundcloud.com/tantakeoff/kissshot-kaneki-ken-prod-jvst-x
+- Say So (Pollari - Yachty Remix) - https://soundcloud.com/tantakeoff/kissshot-say-so-pollari-yachty-remix
+- Bus Stop - https://soundcloud.com/tantakeoff/think-about-it
+- Ralph Lauren - https://soundcloud.com/tantakeoff/kissshot-ralph-lauren
+- Time//Money - https://soundcloud.com/tantakeoff/timemoney-blk-ft-yung-vogue-domatello
+- Mugen - https://soundcloud.com/tantakeoff/notmorgn-sample-challenge
 
 ## Audien
 - Circles (Feat. Ruby Prophet) - https://www.youtube.com/watch?v=3I2TE9K68AY
