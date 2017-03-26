@@ -283,3 +283,7 @@ Press CTRL + F to Search for a song.
 
 ## Snavs
 - Time - https://www.youtube.com/watch?v=UwbVx-XTubM
+
+## Oasis
+- Rock 'n' Roll Star - https://www.youtube.com/watch?v=E5DlBU0A61c
+- Live Forever - https://www.youtube.com/watch?v=i_2mWhfOhGU
